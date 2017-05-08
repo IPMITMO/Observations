@@ -1,1 +1,1 @@
-### Ivan Login's lesson 24.04.2017
+### Ivan Loginov's lesson 24.04.2017
